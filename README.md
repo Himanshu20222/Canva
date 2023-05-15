@@ -1,7 +1,7 @@
 # Canva
 How To Create Canva Premium Lifetime For Free Method/Trick 
 
-1. Go to mailsto.xyz and click on new and add some names and then select domain .edu.pl
+1. Go to https://edumail.icu/mailbox ,,  and click on new and add some names and then select domain .edu.pl
 
 2. Then go to Canva.com/education and then click on get verified
 
